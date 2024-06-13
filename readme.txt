@@ -1,3 +1,6 @@
+Demo:
+https://templatesjungle.com/downloads/amanda-lifestyle-blog-bootstrap-website-template/
+
 
 CREDITS & REFERENCES
 
